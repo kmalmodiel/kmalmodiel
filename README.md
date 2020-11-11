@@ -9,13 +9,13 @@
 > - Web Design
 > - Photoshop
 ***
-### 📫 How to reach me: ... 
+### 📫 How to reach me ... 
 > - Facebook : Kristine Mae Almodiel
 > - Email : kristinealmodiel10@gmail.com <br>
 > - Instagram : @kryxtyn
 > - Pinterest : @kryxtyn
 ***
-### ⚡ Fun fact: ... 
+### ⚡ Fun fact ... 
 > - I'm not into sports.
 > - I am not an outdoor person.
 > - I enjoy long romantic walks going to bed.
